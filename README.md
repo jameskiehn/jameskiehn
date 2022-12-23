@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jameskiehn
 - 👀 I’m interested in solving puzzles and creating intuitive solutions for everyone
-- 🌱 I’m currently learning how to be a better learner, leader, and cooperator
+- 🌱 Making challenging ideas easier for everyone
 - 💞️ I’m looking to collaborate on anything I'm passionate about
 - 📫 jameskiehn@hotmail.com
 
